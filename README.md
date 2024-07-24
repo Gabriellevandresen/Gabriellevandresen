@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gabriellevandresen
+- 👀 Eu gosto de dançar.
+- 🌱 Atuamente estou cursando o primeiro ano do ensino médio.
+- 💞️ Esse perfil é para o uso pedagógico
+- [torcedora do internacional] (https://media.tenor.com/JJjlsiK3yTwAAAAM/scinter-inter.gif)
